@@ -1,4 +1,0 @@
-# rockstarg5
-
-#DAVID
-CAMBIO DE DAVID
